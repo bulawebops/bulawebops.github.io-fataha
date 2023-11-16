@@ -30,20 +30,18 @@
 
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
-
-
-__Upcoming Activities__
-* Stake Temple Tuesdays | Endowments session @ 8:30pm | 1st Tue. (Tongan) & 2nd Tue. (Samoan)
-* Utah Food Bank | Thursdays @ 7:00pm | Volunteers arrived at 6:45am - 1149 N 300 W, Lehi UT 84043
+| Leadership | Member | Contact  |
+|:------------- |:-------------|:-------------|
+| Exe. Secr. | Brother Moea'i | 650-784-1404 |
+| Clerk | Brother Dutta | 801-833-3579  |
+| RS Pres. | Sister Movete | 650-676-9808 |
+| EQ Pres. | Brother Rehak | 831-917-4923 |
+| Building Coord. | Talamai's | 808-294-5398 |
 
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
-
-
-__Leadership__
-* __Executive Secretary:__ Brother Moea'i | 650-784-1404
-* __Ward Clerk:__ Brother Dutta | 801-833-3579
-* __Relief Society:__ Sister Movete | 650-676-9808
-* __Elders Quorum:__ Brother Rehak | 831-917-4923
-* __Ward Missionary Leader(s):__ Brother and Sister Nahinu | 702-918-0330
-* __Building Coordinator:__ Brother & Sister Talamai | 808-294-5398
+| Event | Dates/Time | Details  |
+|:------------- |:-------------|:-------------|
+| Stake Temple Tuesdays | Endowments session @ 8:30pm | 1st Tue. (Tongan) & 2nd Tue. (Samoan) |
+| Utah Food Bank | Thursdays @ 7:00pm | Volunteers arrived at 6:45am - 1149 N 300 W, Lehi UT 84043  |
+| Ward Christmas Party | Friday @ 6-9pm | Invite family and friends to our Ward Christmas Potluck  |
