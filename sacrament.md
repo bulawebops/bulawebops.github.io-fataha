@@ -5,7 +5,7 @@
 > My dear brothers and sisters and friends visting us today, we welcome you to our ward sacrament program. We gather as a great ward family desiring to worship our Lord and Savior, Jesus Christ. Hope you will feel of the Spirit and the love of the Savior Jesus Christ. Thank you for joining with us.
 
 
-. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 * __Presiding:__ Bishop Faga
 * __Conducting:__ Brother Mahe
 * __Organist:__ Sister Paongo
