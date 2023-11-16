@@ -27,7 +27,6 @@
 * Sister Mahe
 * Sister Movete
 
-
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 * __Closing Prayer:__ Helava'ia Faga
 
@@ -38,9 +37,9 @@
 __Upcoming Activities__
 * Temple Baptisms (Black Friday) | Nov. 24th, Friday @ 6:00am | Arrive at the temple lobby by 5:50am  |
 * Ice Skating | Nov. 30th, Thursday @ 7:00pm | Arrive at Skryidge Parking lot by 6:30pm. Bring $5 for admission |
-
-
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
+
+
 __Leadership__
 * 15-18 year old YW President: Tatiana Tupou
 * 11-14 year old YW President: Leila Paongo
