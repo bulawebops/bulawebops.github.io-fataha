@@ -22,4 +22,3 @@ My dear brothers and sisters and friends visting us today, we welcome you to our
 ---
 * Closing Hymn: [#41 - ʻE ʻOtua ko e Tupuʻanga](https://media.ldscdn.org/pdf/music/hymns-tongan/1994-01-0410-my-god-the-spring-of-all-my-joys-ton.pdf?download=true)
   * Benediction: TBD
----
