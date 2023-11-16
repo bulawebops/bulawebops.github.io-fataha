@@ -1,4 +1,45 @@
-<script src="https://rawcdn.githack.com/oscarmorrison/md-page/master/md-page.js"></script><noscript>
+# Project Title
+
+Welcome to the Project!
+
+## Overview
+
+Provide a brief overview of your project.
+
+## Installation
+
+1. Clone the repository: `git clone https://github.com/your-username/your-repo.git`
+2. Navigate to the project folder: `cd your-repo`
+3. Install dependencies: `npm install`
+
+## Usage
+
+Describe how to use your project.
+
+## Features
+
+- List key features of your project.
+
+## Screenshots
+
+Include screenshots or images related to your project.
+
+![Screenshot 1](screenshots/screenshot1.png)
+
+## Contributing
+
+Provide guidelines for contributing to your project.
+
+## License
+
+This project is licensed under the [MIT License](LICENSE).
+
+---
+
+**Note:** This is a basic example, and the actual content and sections may vary based on the nature of your project. Ensure that you follow the Markdown syntax and consider the tips mentioned earlier for mobile optimization. Additionally, include relevant links, badges, or other elements as needed for your project.
+
+
+
 # The Church of Jesus Christ of Latter-day Saints
 ## Orem Utah 2nd Stake
 ### Lehi 41st Ward (Tongan) Sacrament Program - November 19, 2023
