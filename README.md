@@ -35,10 +35,10 @@
 
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
-| Leadership        | Member           | Contact  |
+| Leadership | Member | Contact  |
 | ------------- |:-------------:| -----:|
-| Executive Secretary      | Fotu Moea'i | 650-784-1404 |
-| Ward Clerk      | Nathan Dutta      |   801-833-3579 |
-| Relief Society | Taina Movete      |    650-676-9808 |
-| Elders Quorum | Trenton Rehak      |    831-917-4923 |
-| Building Coordinator | Seini & Esafe Talamai      |    808-294-5398 |
+| Executive Secretary | Fotu Moea'i | 650-784-1404 |
+| Ward Clerk | Nathan Dutta | 801-833-3579  |
+| Relief Society | Taina Movete | 650-676-9808 |
+| Elders Quorum | Trenton Rehak | 831-917-4923 |
+| Building Coordinator | Seini & Esafe Talamai | 808-294-5398 |
