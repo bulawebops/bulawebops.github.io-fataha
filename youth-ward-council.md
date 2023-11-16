@@ -31,11 +31,9 @@
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 * __Benediction:__ Helava'ia Faga
 
-> "With all the Lord gives to us, He has asked us to return to Him and His kingdom on earth 10 percent of our increase. He has promised us that as we are honest in our tithes, He will “open … the windows of heaven, and pour … out a blessing, that there shall not be room enough to receive it.” He has promised us that He will protect us from evil. These promises are so certain, the Lord declares, “Prove me now herewith,” a phrase found nowhere else in the scriptures but when quoting Malachi. The windows of heaven open in many ways. Some are temporal, but many are spiritual. Some are subtle and easy to overlook. Trust in the Lord’s timing; the blessings always come.” - By Elder Neil L. Andersen
-
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
-Leadership
+__Leadership__
 * Executive Secretary: Brother Moea'i | 650-784-1404 |
 * Ward Clerk: Brother Dutta | 801-833-3579  |
 * Relief Society: Sister Movete | 650-676-9808 |
@@ -45,9 +43,6 @@ Leadership
 
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
-| Event | Dates/Time | Details  |
-|:------------- |:-------------|:-------------|
-| Stake Temple Tuesdays | Endowments session @ 8:30pm | 1st Tue. (Tongan) & 2nd Tue. (Samoan) |
-| Utah Food Bank | Thursdays @ 7:00pm | Volunteers arrived at 6:45am - 1149 N 300 W, Lehi UT 84043  |
-| Black Friday Temple | Nov. 24th, Friday @ 6:00am | Arrive at the temple lobby by 5:50am  |
-| Utah Food Bank | Thursdays @ 7:00pm | Volunteers arrived at 6:45am - 1149 N 300 W, Lehi UT 84043  |
+__Upcoming Activities__
+* Temple Baptisms (Black Friday) | Nov. 24th, Friday @ 6:00am | Arrive at the temple lobby by 5:50am  |
+* Ice Skating | Nov. 30th, Thursday @ 7:00pm | Arrive at Skryidge Parking lot by 6:30pm. Bring $5 for admission |
