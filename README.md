@@ -15,10 +15,10 @@ My dear brothers and sisters and friends visting us today, we welcome you to our
 * Sacrament Hymn: [#194 - There Is a Green Hill Far Away](https://media.ldscdn.org/pdf/music/hymns/2001-01-1940-there-is-a-green-hill-far-away-eng.pdf?download=true)
 * __Administration of the Sacrament__
 ---
-* Speaker: Lindsey Tafengatoto
-* Speaker: Becky Vea
-* Speaker: Sunny Mahe
-* Speaker: Taina Movete
+* Speaker: Sister Tafengatoto
+* Speaker: Sister Vea
+* Speaker: Sister Mahe
+* Speaker: Sister Movete
 ---
 * Closing Hymn: [#41 - ʻE ʻOtua ko e Tupuʻanga](https://media.ldscdn.org/pdf/music/hymns-tongan/1994-01-0410-my-god-the-spring-of-all-my-joys-ton.pdf?download=true)
   * Benediction: TBD
