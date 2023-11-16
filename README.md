@@ -12,13 +12,13 @@ My dear brothers and sisters and friends visting us today, we welcome you to our
 * __Invocation:__ TBD
 ---
 * __Ward and Stake Business__
-* Sacrament Hymn: [#194 - There Is a Green Hill Far Away](https://media.ldscdn.org/pdf/music/hymns/2001-01-1940-there-is-a-green-hill-far-away-eng.pdf?download=true)
+* __Sacrament Hymn:__ [#194 - There Is a Green Hill Far Away](https://media.ldscdn.org/pdf/music/hymns/2001-01-1940-there-is-a-green-hill-far-away-eng.pdf?download=true)
 * __Administration of the Sacrament__
 ---
-* Speaker: Sister Tafengatoto
-* Speaker: Sister Vea
-* Speaker: Sister Mahe
-* Speaker: Sister Movete
+* __Speaker:__ Sister Tafengatoto
+* __Speaker:__ Sister Vea
+* __Speaker:__ Sister Mahe
+* __Speaker:__ Sister Movete
 ---
-* Closing Hymn: [#41 - ʻE ʻOtua ko e Tupuʻanga](https://media.ldscdn.org/pdf/music/hymns-tongan/1994-01-0410-my-god-the-spring-of-all-my-joys-ton.pdf?download=true)
-  * Benediction: TBD
+* __Closing Hymn:__ [#41 - ʻE ʻOtua ko e Tupuʻanga](https://media.ldscdn.org/pdf/music/hymns-tongan/1994-01-0410-my-god-the-spring-of-all-my-joys-ton.pdf?download=true)
+  * __Benediction:__ TBD
