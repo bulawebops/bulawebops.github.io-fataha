@@ -8,7 +8,7 @@
 * __Handbook Training:__ Leila Paongo
 * __Minutes:__ Brother Dutta
 
-. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 > __Purpose of this meeting:__ The purpose of the ward youth council is top help individuals build testimonies, receive saving ordinances, keep covenants, and become consecrated followers of Jesus Christ (Moroni 6:4-5).
 > 
@@ -27,11 +27,11 @@
 * Sister Mahe
 * Sister Movete
 
-. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 * __Closing Prayer:__ Helava'ia Faga
 
 
-. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
 __Upcoming Activities__
@@ -39,7 +39,7 @@ __Upcoming Activities__
 * Ice Skating | Nov. 30th, Thursday @ 7:00pm | Arrive at Skryidge Parking lot by 6:30pm. Bring $5 for admission |
 
 
-. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
 __Leadership__
