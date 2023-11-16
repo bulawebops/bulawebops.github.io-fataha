@@ -42,3 +42,6 @@
 | Relief Society | Taina Movete | 650-676-9808 |
 | Elders Quorum | Trenton Rehak | 831-917-4923 |
 | Building Coordinator | Seini & Esafe Talamai | 808-294-5398 |
+
+
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
