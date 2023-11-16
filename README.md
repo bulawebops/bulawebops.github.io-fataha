@@ -1,13 +1,10 @@
 # Project Title
-
 Welcome to the Project!
 
 ## Overview
-
 Provide a brief overview of your project.
 
 ## Installation
-
 1. Clone the repository: `git clone https://github.com/your-username/your-repo.git`
 2. Navigate to the project folder: `cd your-repo`
 3. Install dependencies: `npm install`
