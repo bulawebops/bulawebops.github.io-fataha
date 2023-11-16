@@ -21,4 +21,4 @@ My dear brothers and sisters and friends visting us today, we welcome you to our
 * __Speaker:__ Sister Movete
 ---
 * __Closing Hymn:__ [#41 - ʻE ʻOtua ko e Tupuʻanga](https://media.ldscdn.org/pdf/music/hymns-tongan/1994-01-0410-my-god-the-spring-of-all-my-joys-ton.pdf?download=true)
-  * __Benediction:__ TBD
+* __Benediction:__ TBD
