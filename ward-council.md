@@ -8,7 +8,7 @@
 * __Handbook Training:__ Ward Missionary Leader
 * __Minutes:__ Brother Dutta
 
-. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 
 > __Purpose of this meeting:__ Help accomplish God’s work of salvation and exaltation in the ward. As we come unto Christ and help others do the same, we participate in God’s work of salvation and exaltation. This work is guided by the two great commandments to love God and to love our neighbors (see Matthew 22:37–39).
 
@@ -25,11 +25,11 @@
 * Inviting all to receive the gospel. Reviewing the progress of those who are learning about the gospel, as well as new and returning members. Discussing ways members can share the gospel with others.
 * Uniting families for eternity. Reviewing the progress of members who are preparing to receive temple ordinances. Planning ways to help more members qualify for a temple recommend. Discussing ways members can participate in temple and family history work.
 
-. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 * __Closing Prayer:__ Young Women President
 
 
-. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 
 
 __Upcoming Activities__
@@ -37,7 +37,7 @@ __Upcoming Activities__
 * Utah Food Bank | Thursdays @ 7:00pm | Volunteers arrived at 6:45am - 1149 N 300 W, Lehi UT 84043
 
 
-. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 
 
 __Leadership__
