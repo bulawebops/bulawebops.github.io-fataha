@@ -31,20 +31,21 @@
 * __Closing Prayer:__ Helava'ia Faga
 
 
-. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
+| Leadership | Member |
+|:------------- |:-------------|
+| 15-18 year old YW President: | Tatiana Tupou |
+| 11-14 year old YW President: | Leila Paongo |
+| Deacons Quorum President: | Ronnie Movete Jnr |
+| Teachers Quorum President | Latu Moea'i |
+| Priest 1st Assistant: | Fotu Moea'i |
 
 
-__Upcoming Activities__
-* Temple Baptisms (Black Friday) | Nov. 24th, Friday @ 6:00am | Arrive at the temple lobby by 5:50am  |
-* Ice Skating | Nov. 30th, Thursday @ 7:00pm | Arrive at Skryidge Parking lot by 6:30pm. Bring $5 for admission |
-
-
-. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
-
-
-__Leadership__
-* 15-18 year old YW President: Tatiana Tupou
-* 11-14 year old YW President: Leila Paongo
-* Deacons Quorum President: Ronnie Movete Jnr
-* Teachers Quorum President: Latu Moea'i
-* Priest 1st Assistant: Fotu Moea'i
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
+| Event | Dates/Time | Details  |
+|:------------- |:-------------|:-------------|
+| Stake Temple Tuesdays | Endowments session @ 8:30pm | 1st Tue. (Tongan) & 2nd Tue. (Samoan) |
+| Utah Food Bank | Thursdays @ 7:00pm | Volunteers arrived at 6:45am - 1149 N 300 W, Lehi UT 84043  |
+| Temple Baptisms (Black Friday) | Nov. 24th, Friday @ 6:00am | Arrive at the Mt. Timpanogas Temple lobby by 5:50am  |
+| Ice Skating | Nov. 30th, Thursday @ 7:00pm | Arrive at Skryidge Parking lot by 6:30pm. Bring $5 for admission  |
+| Ward Christmas Party | Dec. 8th - Fri. @ 6-9pm | Invite family and friends to our Ward Christmas Potluck  |
