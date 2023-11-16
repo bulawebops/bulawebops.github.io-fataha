@@ -37,12 +37,11 @@
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 | Leadership | Member | Contact  |
 |:------------- |:-------------|:-------------|
-| Executive Secretary | Brother Moea'i | 650-784-1404 |
-| Ward Clerk | Brother Dutta | 801-833-3579  |
-| Relief Society | Sister Movete | 650-676-9808 |
-| Elders Quorum | Brother Rehak | 831-917-4923 |
-| Ward Missionary Leader(s) | Brother and Sister Nahinu | 702-918-0330 |
-| Building Coordinator | Brother & Sister Talamai | 808-294-5398 |
+| Exe. Secr. | Brother Moea'i | 650-784-1404 |
+| Clerk | Brother Dutta | 801-833-3579  |
+| RS Pres. | Sister Movete | 650-676-9808 |
+| EQ Pres. | Brother Rehak | 831-917-4923 |
+| Building Coord. | Talamai's | 808-294-5398 |
 
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
