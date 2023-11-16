@@ -3,7 +3,7 @@
 ### Sunday - November 26, 2023
 
 * __Presiding:__ Bishop Faga
-* __Conducting:__ Reno Mahe
+* __Conducting:__ Brother Mahe
 * __Opening Prayer:__ Elders Quorum
 * __Handbook Training:__ Ward Missionary Leader
 * __Minutes:__ Brother Dutta
