@@ -22,10 +22,12 @@
 
 ### Discussion
 
-* Sister Tafengatoto
-* Sister Vea
-* Sister Mahe
-* Sister Movete
+* Recent youth activity - thoughts? feedback?
+* New visitors
+* Non-member friends
+* Ministering to one another - who isn't coming to church? why? anything we can help?
+* Ward Christmas Party
+* December Youth activity dates
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 * __Closing Prayer:__ Helava'ia Faga
@@ -34,6 +36,7 @@
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 | Leadership | Member |
 |:------------- |:-------------|
+| YW President: | Sister Havili |
 | 15-18 year old YW President: | Tatiana Tupou |
 | 11-14 year old YW President: | Leila Paongo |
 | Deacons Quorum President: | Ronnie Movete Jnr |
