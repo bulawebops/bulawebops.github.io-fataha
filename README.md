@@ -1,7 +1,7 @@
 # The Church of Jesus Christ of Latter-day Saints
 ## Orem Utah 2nd Stake
 ### Lehi 41st Ward (Tongan) Sacrament Program - November 19, 2023
----
+
 My dear brothers and sisters and friends visting us today, we welcome you to our ward sacrament program. We gather as a great ward family desiring to worship our Lord and Savior, Jesus Christ. Hope you will feel of the Spirit and the love of the Savior Jesus Christ. Thank you for joining with us.
 ---
 * __Presiding:__ Bishop Faga
