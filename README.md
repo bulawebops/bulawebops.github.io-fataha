@@ -5,4 +5,4 @@
 * [Sacrament Program](https://bulawebops.github.io/bulawebops.github.io-fataha/sacrament.md)
 * [Bishopric](https://bulawebops.github.io/bulawebops.github.io-fataha/bishopric.md)
 * [Ward Council](https://bulawebops.github.io/bulawebops.github.io-fataha/ward-council.md)
-* [Ward Youth Council](https://bulawebops.github.io/bulawebops.github.io-fataha/ward-youth-council.md)
+* [Ward Youth Council](https://bulawebops.github.io/bulawebops.github.io-fataha/youth-ward-council.md)
