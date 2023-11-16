@@ -36,7 +36,7 @@
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 | Leadership | Member | Contact  |
-| ------------- |:-------------:| -----:|
+|:------------- |:-------------|:-------------|
 | Executive Secretary | Fotu Moea'i | 650-784-1404 |
 | Ward Clerk | Nathan Dutta | 801-833-3579  |
 | Relief Society | Taina Movete | 650-676-9808 |
