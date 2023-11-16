@@ -3,7 +3,7 @@
 ### Sunday - November 19, 2023
 
 * __Presiding:__ Bishop Faga
-* __Conducting:__ Fotu Moea'i
+* __Conducting:__ Fotu Moea'i Jnr
 * __Opening Prayer:__ Emeryn Aumoeualogo
 * __Handbook Training:__ Leila Paongo
 * __Minutes:__ Brother Dutta
